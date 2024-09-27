@@ -1,6 +1,6 @@
 # growthmarketingideas 
 
-If you want to grow your business easier and faster, check: [spaceleads.pro/growth]
+If you want to grow your business easier and faster, check: [https://www.spaceleads.pro/]
 
 **How to find clients using Kickstarter**
 1. Go to kickstarter. com
