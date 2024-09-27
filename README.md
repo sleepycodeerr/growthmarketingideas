@@ -1,4 +1,4 @@
-# growthmarketingideas 
+# Startup growth marketing ideas for digital nomads and SaaS founders
 
 If you want to grow your business easier and faster, check: [https://www.spaceleads.pro/]
 
